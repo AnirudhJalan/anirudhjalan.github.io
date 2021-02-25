@@ -1,37 +1,83 @@
 ## ANIRUDHS PERSONAL WEBSITE
+PASSIONATE LEARNER (ALWAYS READY TO LEARN NEW THINGS)
 
-You can use the [editor on GitHub](https://github.com/AnirudhJalan/anirudhjalan.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
+24 Ram LAl Mukherjee Lane
+Salkia, Golabari, Howrha - 711106 
+(+91) 9875388803
+anirudhjalan2001@gmail.com
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+# EXPERIENCE 
 
-### Markdown
+UNSCHOOL — CAMPUS AMBASSADOR  
+23, OCT 2020, - 24, NOV 2020
+SALES AND PITCHING FOR THEIR PRODUCT.(DIFFERENT FIELDS OF COURSES) 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+MY CAPTAIN— CAMPUS AMBASSADOR 
+27, OCT 2020 - 29, NOV 2020
+SALES AND PITCHING FOR THE PRODUCT.(DIFFERENT FIELDS OF COURSES)
 
-```markdown
-Syntax highlighted code block
+SMART KNOWER — CAMPUS AMBASSADOR 
+7, FEB 2021 - PRESENT
+BRAND BUILDING , PROMOTIONS, 
 
-# Header 1
-## Header 2
-### Header 3
+MUSKURHAT FOUNDATION — CAMPUS AMBASSADOR 
+4, NOV 2020 - 10 , DEC 2020
+TO COLLECT MONEY FOR THE FOUNDATION, TO HELP THE PEOPLE.
 
-- Bulleted
-- List
+VERZEO— CAMPUS AMBASSADOR 
+25, JAN 2021 - PRESENT
+WORKING AS A SALES TEAM. 
 
-1. Numbered
-2. List
+YOUTH FORUM MUN — CAMPUS AMBASSADOR 
+ 15,FEB 2021 - PRESENT
+CONDUCTING A DEBATE COMPETITION.
 
-**Bold** and _Italic_ and `Code` text
+VIOLET TECH  — CAMPUS AMBASSADOR 
+19,FEB 2021 - MONTH 20XX
+SALES AND PITCHING FOR THE PRODUCTS
 
-[Link](url) and ![Image](src)
-```
+## EDUCATION
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+DON Bosco School , LILUHA - ICSE
+YEAR 2006 - YEAR 2014
+LEARN , DEVELOPED MY SKILLS IN TEAM WORK, WON SPORTS CHALLENGE,SKITS,DANCE,BEEN LEADER AS SCHOOL CAPTAIN. 
 
-### Jekyll Themes
+MADHUSTHALI VIDYAPEETH, MADHUPUR — ICSE
+YEAR 2014 - YEAR 2018
+DEVELOPED A COMPETITIVE SPIRIT, LEADERSHIP QUALITY AS A DORM INCHARGE , FOOD COMMITTEE HEAD, HOUSE ASSISTANT , NATURE CLUB MEMBER , DISCIPLINE CLUB MEMBER , WON BASKETBALL ZONALS AND PARTICIPATED IN DIFFERENT SPORTS. ,PARTICIPATED IN DEBATE , EXTEMPORE
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/AnirudhJalan/anirudhjalan.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+AGRASAIN BOYS SCHOOL , LILUHA - ISC
+YEAR 2018 - YEAR 2020
+LEARN , DEVELOPED MY SKILLS IN TEAM WORK, WON SPORTS EVENT 
 
-### Support or Contact
+### SKILLS
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+INBOUND MARKETING (EMAIL MARKETING)
+DIGITAL MARKETING
+SOCIAL MEDIA MARKETING 
+MUSICIAN 
+BASKETBALL AND VOLLEYBALL PLAYER.
+ARTIST
+CONTENT WRITER
+
+#### AWARDS 
+
+AWARDS
+
+SPORTS :BASKETBALL, JAVELIN,DISCUS THROW,WHEELBARROW,SACK RACE,FOOTBALL
+
+SPEAKING SKILLS: DEBATE , EXTEMPORE , STORY TELLING , SPEECH, RECITING POEM
+
+OTHER SKILLS: DANCE , PARADE AND BAND , MUSIC , COLLAGE MAKING , SKIT,DRAMA
+
+STUDIESut: GOVERNOR AWARD , SCIENCE EXHIBITION, INTERNATIONAL COMPUTER OLYMPIAD,  
+
+##### LANGUAGES
+
+FLUENT IN -ENGLISH , HINDI      
+
+NOT SO FLUENT IN - BENGALI , GERMAN.
+
+
+
+
