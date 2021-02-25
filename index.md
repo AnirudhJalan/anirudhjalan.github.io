@@ -1,7 +1,7 @@
 ## ANIRUDHS PERSONAL WEBSITE
 PASSIONATE LEARNER (ALWAYS READY TO LEARN NEW THINGS)
 
-24 Ram LAl Mukherjee Lane
+24 Ram Lal Mukherjee Lane
 Salkia, Golabari, Howrha - 711106 
 (+91) 9875388803
 anirudhjalan2001@gmail.com
