@@ -8,75 +8,85 @@ anirudhjalan2001@gmail.com
 
 # EXPERIENCE 
 
-UNSCHOOL — CAMPUS AMBASSADOR  
+UNSCHOOL — Campus Ambassador  
 23, OCT 2020, - 24, NOV 2020
-SALES AND PITCHING FOR THEIR PRODUCT.(DIFFERENT FIELDS OF COURSES) 
+Sales And Pitching For Their Product.(Different field of courses) 
 
-MY CAPTAIN— CAMPUS AMBASSADOR 
+MY CAPTAIN— Campus Ambassador
 27, OCT 2020 - 29, NOV 2020
-SALES AND PITCHING FOR THE PRODUCT.(DIFFERENT FIELDS OF COURSES)
+Sales And Pitching For Their Product.(Different field of courses) 
 
-SMART KNOWER — CAMPUS AMBASSADOR 
-7, FEB 2021 - PRESENT
-BRAND BUILDING , PROMOTIONS, 
+SMART KNOWER — Campus Ambassador
+7, FEB 2021 - Present
+Brand Building , Promotions 
 
-MUSKURHAT FOUNDATION — CAMPUS AMBASSADOR 
+MUSKURHAT FOUNDATION — Campus Ambassador
 4, NOV 2020 - 10 , DEC 2020
-TO COLLECT MONEY FOR THE FOUNDATION, TO HELP THE PEOPLE.
+To collect the money for the foundation , for the social cause.
 
-VERZEO— CAMPUS AMBASSADOR 
-25, JAN 2021 - PRESENT
-WORKING AS A SALES TEAM. 
+VERZEO—Campus Ambassador
+25, JAN 2021 - Present
+Working as a sales team. 
 
-YOUTH FORUM MUN — CAMPUS AMBASSADOR 
- 15,FEB 2021 - PRESENT
-CONDUCTING A DEBATE COMPETITION.
+YOUTH FORUM MUN — Campus Ambassador
+ 15,FEB 2021 - Present
+Conducting debate competition.
 
-VIOLET TECH  — CAMPUS AMBASSADOR 
-19,FEB 2021 - MONTH 20XX
-SALES AND PITCHING FOR THE PRODUCTS
+VIOLET TECH  — Campus Ambassador
+19,FEB 2021 - Present
+Sales And Pitching For Their Product.(Different field of courses)
+
 
 ## EDUCATION
 
-DON Bosco School , LILUHA - ICSE
+Don Bosco School , Liluah - ICSE
 YEAR 2006 - YEAR 2014
-LEARN , DEVELOPED MY SKILLS IN TEAM WORK, WON SPORTS CHALLENGE,SKITS,DANCE,BEEN LEADER AS SCHOOL CAPTAIN. 
+Learn , Developed my skills in team work, Won sports challenge,Skits,Dance,BeenLeader as School Captain. 
 
-MADHUSTHALI VIDYAPEETH, MADHUPUR — ICSE
+MADHUSTHALI VIDYAPEETH, Madhupur — ICSE
 YEAR 2014 - YEAR 2018
-DEVELOPED A COMPETITIVE SPIRIT, LEADERSHIP QUALITY AS A DORM INCHARGE , FOOD COMMITTEE HEAD, HOUSE ASSISTANT , NATURE CLUB MEMBER , DISCIPLINE CLUB MEMBER , WON BASKETBALL ZONALS AND PARTICIPATED IN DIFFERENT SPORTS. ,PARTICIPATED IN DEBATE , EXTEMPORE
+Developed a Competitive Spirit, Enhanced my Leadership Quality as a Dorm Incharge , Food Committee Head, House Assistant , Nature club , Discipline Club Member , Won Basketball Zonals and Participated in different sports, Participated in  Debate , Extempore
 
-AGRASAIN BOYS SCHOOL , LILUHA - ISC
+AGRASAIN BOYS SCHOOL , Liluah - ISC
 YEAR 2018 - YEAR 2020
-LEARN , DEVELOPED MY SKILLS IN TEAM WORK, WON SPORTS EVENT 
+Learn , Developed my skills in teamwork, Won Sports Event 
+
 
 ### SKILLS
 
-INBOUND MARKETING (EMAIL MARKETING)
-DIGITAL MARKETING
-SOCIAL MEDIA MARKETING 
-MUSICIAN 
-BASKETBALL AND VOLLEYBALL PLAYER.
-ARTIST
-CONTENT WRITER
+Inbound Marketing (Email  Marketing).
+
+Digital Marketing.
+
+Social Media Marketing. 
+
+Network Marketing.
+
+Musician.
+
+Basketball AND Volleyball Player.
+
+Artist.
+
+Content Writer.
+
 
 #### AWARDS 
 
-AWARDS
+SPORTS :Basketball, Javelin,Discus Throw,Wheelbarrow,Sack Race,Football.
 
-SPORTS :BASKETBALL, JAVELIN,DISCUS THROW,WHEELBARROW,SACK RACE,FOOTBALL
+SPEAKING SKILLS: Debate,Extempore, Storytelling,Speech,Reciting Poem.
 
-SPEAKING SKILLS: DEBATE , EXTEMPORE , STORY TELLING , SPEECH, RECITING POEM
+OTHER SKILLS: Dance,Parade and Band, Music,Collage Making,Skit,Drama.
 
-OTHER SKILLS: DANCE , PARADE AND BAND , MUSIC , COLLAGE MAKING , SKIT,DRAMA
-
-STUDIESut: GOVERNOR AWARD , SCIENCE EXHIBITION, INTERNATIONAL COMPUTER OLYMPIAD,  
+STUDIES: Governor Award,Science Exhibition,International Computer Olympiad.   
 
 ##### LANGUAGES
 
-FLUENT IN -ENGLISH , HINDI      
+Fluent In -English, Hindi      
 
-NOT SO FLUENT IN - BENGALI , GERMAN.
+Not So Fluent In - Bengali, Marwari, German.
+
 
 
 
